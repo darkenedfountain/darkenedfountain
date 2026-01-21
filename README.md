@@ -4,7 +4,7 @@
 <br><br>
 <pre>
     <a href="https://rentry.co/badthings_">rentry</a> • <a href="https://gasa4.atabook.org/">atabook</a> • <a href="https://en.pronouns.page/@gasa4">prnspage</a> • <a href="https://github.com/townofrobloxiadestroyed">MY TOR:D ARCHIVE CHEKC IT OUT PLSSS</a></a> 
-genderfluid panromantic
+genderfluid panromantic 
     ivan fictkin
     freelance artst
     ask 4 disc
