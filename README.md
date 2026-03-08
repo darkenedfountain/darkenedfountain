@@ -7,13 +7,15 @@
 <pre>
     <a href="https://rentry.co/titandeltarune">rentry</a> • <a href="https://gasa4.atabook.org/">atabook</a> • <a href="https://en.pronouns.page/@gasa4">prnspage</a> • <a href="https://github.com/townofrobloxiadestroyed">MY TOR:D ARCHIVE CHEKC IT OUT PLSSS</a></a> 
 kyupi / aevithis / kyu
-   no dni, no gender, no pronouns, shape me into whatever you want me to be
-   i am no-thing, everything, and ever so changing
+   i am genderless, but i prefer feminine pronouns, though it is flexible
+   identity wise, i am no-thing, everything, and ever so changing
+    make sure to sign my atabook! i will make a strawoage soon, ehehe
 <img src="https://64.media.tumblr.com/f0378db4dba40b4c879ca3d4b2786d43/6964509720da72d4-04/s1280x1920/912cdf687246a4fbad5094c627b22af6cb5b08de.pnj" width="60%" align="center" style="margin-bottom: 20px;" />
 
 <img src="https://64.media.tumblr.com/00f27359bd3594e834040b15aa38ce5e/9a193df974cff0aa-49/s75x75_c1/68baf0845fef60c6fe9b40cde1e85bb047676b3c.gifv" width="3%" align="center" style="margin-bottom: 20px;" /> do you love my authentic self?
 <img src="https://64.media.tumblr.com/00f27359bd3594e834040b15aa38ce5e/9a193df974cff0aa-49/s75x75_c1/68baf0845fef60c6fe9b40cde1e85bb047676b3c.gifv" width="3%" align="center" style="margin-bottom: 20px;" /> then love me at all my versions
 <img src="https://64.media.tumblr.com/00f27359bd3594e834040b15aa38ce5e/9a193df974cff0aa-49/s75x75_c1/68baf0845fef60c6fe9b40cde1e85bb047676b3c.gifv" width="3%" align="center" style="margin-bottom: 20px;" /> adore me at all my stages
+    - @enidnon
 
 <img src="https://64.media.tumblr.com/ba9a7525f602d8412db0ae59e9c05c2c/43e796fd77866d74-bd/s2048x3072/e2c17b13af5319fcc135d5fc8158ea99ac642d4a.pnj" width="60%" align="center" style="margin-bottom: 20px;" />
 
@@ -23,6 +25,39 @@ kyupi / aevithis / kyu
 
 ![274403-1281 (1)](https://github.com/user-attachments/assets/c81543b4-581c-4763-ba02-155b0e9f4ee5)
 
+# EXTRA/FUN STUFF
+
+my typology (This might have some mistakes
+
+| Typology |  |
+|------|------|
+| MBTI | INFJ |
+| Classic Jungiam | IN(F) |
+| Instinctual Variants | sx / sp / so |
+| Tritype | 468 |
+| Trifix | 486 |
+| Enneagram Subtype | sx4 |
+| Socionics | IEI |
+| Psychosophy / Attitudinal Psyche | ELVF |
+| SLOAN | RLUEI |
+| OCEAN | Openness: 85–90%, Conscientiousness: 45–55%, Extraversion: 25–30%, Agreeableness: 55–60%, Neuroticism: 75–80% |
+| Temperaments | melchol |
+| Temporistics | VBNP |
+| Motives | aOti / D / eg |
+| Amatorics | SAEF |
+| DELFA | E-21224 |
+| Values | SELVUA |
+| PER | TME-3 |
+| DiSC | DC |
+| Rizzology | SFEL |
+| FIBO-B | pshsa - cl - ph |
+| R. Drive | {In} – Un & Em – {Ro} |
+| Four Scales | 2 |
+| Posneg | Un/ha - lo/ex |
+| Superatorics | GMBP |
+| Informionics | FSOD |
+| Moralistics | SZTP |
+| Guronics | LSAI |
 
 
 
