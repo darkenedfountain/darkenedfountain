@@ -40,9 +40,8 @@ my typology (This might have some mistakes
 | Classic Jungiam | IN(F) |
 | Instinctual Variants | sx / sp / so |
 | Tritype | 468 |
-| Trifix | 486 |
 | Enneagram Subtype | sx4 |
-| Socionics | IEI |
+| Socionics | ESI |
 | Psychosophy / Attitudinal Psyche | ELVF |
 | SLOAN | RLUEI |
 | OCEAN | Openness: 85–90%, Conscientiousness: 45–55%, Extraversion: 25–30%, Agreeableness: 55–60%, Neuroticism: 75–80% |
