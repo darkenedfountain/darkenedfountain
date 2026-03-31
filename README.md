@@ -1,7 +1,5 @@
 <div align="center"><a href="https://github.com/Safouene1/support-palestine-banner/blob/master/Markdown-pages/Support.md"><img src="https://raw.githubusercontent.com/Safouene1/support-palestine-banner/master/banner-support.svg" alt="Support Palestine" style="width: 100%;"></a></div>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31g75yiniehjeo2o47ooklyn52se&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false&mode=light)](https://spotify-github-profile.kittinanx.com/api/view?uid=31g75yiniehjeo2o47ooklyn52se&redirect=true)
-
 
 <div align="center">
 <img src="https://i.pinimg.com/736x/1e/a2/71/1ea271a05c62812be5e09d8e62e987d7.jpg" width="25%" align="right" />
@@ -14,8 +12,37 @@
 kyupi / aevithis / kyu
    i am genderless, but i prefer feminine pronouns, though it is flexible
    identity wise, i am no-thing, everything, and ever so changing
-    make sure to sign my atabook! i will make a strawoage soon, ehehe
-<img src="https://64.media.tumblr.com/f0378db4dba40b4c879ca3d4b2786d43/6964509720da72d4-04/s1280x1920/912cdf687246a4fbad5094c627b22af6cb5b08de.pnj" width="60%" align="center" style="margin-bottom: 20px;" />
+    make sure to sign my atabook! 
+    i struggle with paranoid schizophrenia, and magical thinking and harm  OCD (diagnosed),
+    please, interact with caution because of this.
+    I do not have DID/OSDD, but I do struggle with plurality.
+    <details>
+  <summary>Wondering what harm or magical thinking OCD is? Click here!</summary>
+Harm OCD is a subtype of obsessive-compulsive disorder involving a fear of hurting others. 
+        Pedophilic harm OCD specifically (which is what I have), is an immense 
+        fear of becoming an pedophile.
+        I developed this due to the environment I grew up in as an child.
+        Magical thinking OCD involves preoccupation with repetitive,
+        intrusive thoughts about being responsible for preventing bad things 
+        (e.g., a car accident, a terminal illness or something undefined) happening to 
+        oneself or someone else.
+        For example, someone with Magical thinking OCD might assume
+        that something as simple as brushing their teeth
+        can cause a war.
+
+</details>
+    <details>
+  <summary>Wondering what Paranoid Schizophrenia is? Click here!</summary>
+        Paranoid schizophrenia is when a person with schizophrenia mainly experiences 
+        strong paranoia, meaning they may believe others are watching, plotting against, ;
+        or trying to harm them, often along with hallucinations (like hearing voices) 
+        that feel completely real to them.
+        Paranoid schizophrenia involves: Paranoia, which means you feel distrust, suspicious, 
+        and fearful of someone without any good reason, Delusions, which means you believe 
+        something that people without the condition know is unreal as real.
+  </details>
+
+            <img src="https://64.media.tumblr.com/f0378db4dba40b4c879ca3d4b2786d43/6964509720da72d4-04/s1280x1920/912cdf687246a4fbad5094c627b22af6cb5b08de.pnj" width="60%" align="center" style="margin-bottom: 20px;" />
 
 <img src="https://64.media.tumblr.com/00f27359bd3594e834040b15aa38ce5e/9a193df974cff0aa-49/s75x75_c1/68baf0845fef60c6fe9b40cde1e85bb047676b3c.gifv" width="3%" align="center" style="margin-bottom: 20px;" /> do you love my authentic self?
 <img src="https://64.media.tumblr.com/00f27359bd3594e834040b15aa38ce5e/9a193df974cff0aa-49/s75x75_c1/68baf0845fef60c6fe9b40cde1e85bb047676b3c.gifv" width="3%" align="center" style="margin-bottom: 20px;" /> then love me at all my versions
@@ -30,7 +57,12 @@ kyupi / aevithis / kyu
 
 ![274403-1281 (1)](https://github.com/user-attachments/assets/c81543b4-581c-4763-ba02-155b0e9f4ee5)
 
-# EXTRA/FUN STUFF
+# BOUNDARIES
+
+* Please do not bring up SHEDTWT, your bodily insecurities (im not the right person you should be venting to this about!), or any other sensitive things of the sorts.
+* I have no DNI, but I prefer darkshippers or radqueers to stay at thin ice/to not get too cozy since I am in recovery.
+
+EXTRA/FUN STUFF
 
 my typology (This might have some mistakes
 
