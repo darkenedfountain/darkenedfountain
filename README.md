@@ -2,7 +2,7 @@
 
 
 <div align="center">
-<img src="https://i.pinimg.com/736x/1e/a2/71/1ea271a05c62812be5e09d8e62e987d7.jpg" width="25%" align="right" />
+<img src="https://files.catbox.moe/9ins6j.png" width="25%" align="right" />
 <img src="https://readme-typing-svg.demolab.com?font=Inconsolata&weight=500&size=40&duration=4000&pause=50&color=000000&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=even+when+things+feel+pointless;do+it+with+love;stay+alive+and+do+it+with+love+%E2%99%A5" width="70%" />
 
 ..    
