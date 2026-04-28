@@ -21,7 +21,9 @@ $\color{#e8d672}{\textsf{kyupi / aevithis / ask for other names...}}$ <br>
    <img src="https://www.freepnglogos.com/uploads/divider-png/divider-the-terra-team-terraville-0.png" width="60%" align="center" style="margin-bottom: 20px;" />
 
 <img src="https://64.media.tumblr.com/00f27359bd3594e834040b15aa38ce5e/9a193df974cff0aa-49/s75x75_c1/68baf0845fef60c6fe9b40cde1e85bb047676b3c.gifv" width="3%" align="center" style="margin-bottom: 20px;" /> do you love my authentic self?
+
 <img src="https://64.media.tumblr.com/00f27359bd3594e834040b15aa38ce5e/9a193df974cff0aa-49/s75x75_c1/68baf0845fef60c6fe9b40cde1e85bb047676b3c.gifv" width="3%" align="center" style="margin-bottom: 20px;" /> then love me at all my versions
+
 <img src="https://64.media.tumblr.com/00f27359bd3594e834040b15aa38ce5e/9a193df974cff0aa-49/s75x75_c1/68baf0845fef60c6fe9b40cde1e85bb047676b3c.gifv" width="3%" align="center" style="margin-bottom: 20px;" /> adore me at all my stages
     - @enidnon
 
