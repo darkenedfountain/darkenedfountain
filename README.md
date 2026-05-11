@@ -11,7 +11,7 @@ $\color{#e8d672}{\textsf{kyupi / aevithis / ask for other names...}}$ <br>
  $\color{#7ceaf2}{\textsf{no pronouns, no gender - i am what you see me as}}$ <br>
  
   
-   $\color{#e8d672}{\textsf{make sure to sign my atabook!}}$ <br> 
+   $\color{#e8d672}{\textsf{i accidentalyy deleted all my links be tuned}}$ <br> 
   
    $\color{#7ceaf2}{\textsf{i struggle with paranoid schizophrenia, OCD and low empathy}}$ <br> 
      $\color{#7ceaf2}{\textsf{please, interact with caution because of this.}}$ <br> 
