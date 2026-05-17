@@ -16,8 +16,8 @@ $\color{#d99c41}{\textsf{kyupi / aevithis / ask for other names...}}$ <br>
 <a href="https://x.com/kyuparin">twitter</a> |
 <a href="https://en.pronouns.page/@gasa4">pronounspage</a>
   
-   $\color{#d99c41}{\textsf{i struggle with paranoid schizophrenia, OCD and low empathy}}$ <br> 
-     $\color{#d99c41}{\textsf{please, interact with caution because of this.}}$ <br> 
+   $\color{#d99c41}{\textsf{i struggle with paranoid schizophrenia, magical thinking + pedophilic OCD}}$ <br> 
+     $\color{#d99c41}{\textsf{diagnosed! please, interact with caution <3 :-)}}$ <br> 
     
 
 
