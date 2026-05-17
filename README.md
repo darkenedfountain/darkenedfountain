@@ -2,7 +2,7 @@
 
  
 <div align="center">
-<img src="https://files.catbox.moe/9ins6j.png" width="25%" align="right" />
+<img src="https://files.catbox.moe/6zq688.jpg" width="27%" align="right" />
 <img src="https://readme-typing-svg.demolab.com?font=Inconsolata&weight=500&size=40&duration=4000&pause=10&color=81d4d1&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=sweetness,+sweetness+i+was+only+joking;when+i+said+id+like+to;SMASH+every+tooth+in+your+head!+%E2%99%A5" width="70%" />
 
 ..    
@@ -11,7 +11,9 @@ $\color{#e8d672}{\textsf{kyupi / aevithis / ask for other names...}}$ <br>
  $\color{#7ceaf2}{\textsf{no pronouns, no gender - i am what you see me as}}$ <br>
  
   
-   $\color{#e8d672}{\textsf{i accidentalyy deleted all my links be tuned}}$ <br> 
+ <a href="https://google.com">Google</a> |
+<a href="https://youtube.com">YouTube</a> |
+<a href="https://github.com">GitHub</a>
   
    $\color{#7ceaf2}{\textsf{i struggle with paranoid schizophrenia, OCD and low empathy}}$ <br> 
      $\color{#7ceaf2}{\textsf{please, interact with caution because of this.}}$ <br> 
