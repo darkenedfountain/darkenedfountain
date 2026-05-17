@@ -11,9 +11,10 @@ $\color{#d99c41}{\textsf{kyupi / aevithis / ask for other names...}}$ <br>
  $\color{#c96f92}{\textsf{no pronouns, no gender - i am what you see me as}}$ <br>
  
   
- <a href="https://google.com">Google</a> |
-<a href="https://youtube.com">YouTube</a> |
-<a href="https://github.com">GitHub</a>
+ <a href="https://rentry.co/fivepebbsii">rentry</a> |
+<a href="https://gasa4.atabook.org/">atabook</a> |
+<a href="https://x.com/kyuparin">twitter</a> |
+<a href="https://en.pronouns.page/@gasa4">pronounspage</a>
   
    $\color{#d99c41}{\textsf{i struggle with paranoid schizophrenia, OCD and low empathy}}$ <br> 
      $\color{#d99c41}{\textsf{please, interact with caution because of this.}}$ <br> 
@@ -22,29 +23,18 @@ $\color{#d99c41}{\textsf{kyupi / aevithis / ask for other names...}}$ <br>
 
    <img src="https://64.media.tumblr.com/a2f9925e061551351c03ee4493b60072/1e688ba14d189b26-8e/s2048x3072/6fec605dfd21eaadd39161c5357b841de8af2228.pnj" width="60%" align="center" style="margin-bottom: 20px;" />
 
-<img src="https://64.media.tumblr.com/00f27359bd3594e834040b15aa38ce5e/9a193df974cff0aa-49/s75x75_c1/68baf0845fef60c6fe9b40cde1e85bb047676b3c.gifv" width="3%" align="center" style="margin-bottom: 20px;" /> do you love my authentic self?
+<img src="https://64.media.tumblr.com/00f27359bd3594e834040b15aa38ce5e/9a193df974cff0aa-49/s75x75_c1/68baf0845fef60c6fe9b40cde1e85bb047676b3c.gifv" width="3%" align="center" style="margin-bottom: 20px;" /> and now I know how the joan of arc felt
 
-<img src="https://64.media.tumblr.com/00f27359bd3594e834040b15aa38ce5e/9a193df974cff0aa-49/s75x75_c1/68baf0845fef60c6fe9b40cde1e85bb047676b3c.gifv" width="3%" align="center" style="margin-bottom: 20px;" /> then love me at all my versions
+<img src="https://64.media.tumblr.com/00f27359bd3594e834040b15aa38ce5e/9a193df974cff0aa-49/s75x75_c1/68baf0845fef60c6fe9b40cde1e85bb047676b3c.gifv" width="3%" align="center" style="margin-bottom: 20px;" /> as the flames rose to her roman nose
 
-<img src="https://64.media.tumblr.com/00f27359bd3594e834040b15aa38ce5e/9a193df974cff0aa-49/s75x75_c1/68baf0845fef60c6fe9b40cde1e85bb047676b3c.gifv" width="3%" align="center" style="margin-bottom: 20px;" /> adore me at all my stages
-    - @enidnon
-
+<img src="https://64.media.tumblr.com/00f27359bd3594e834040b15aa38ce5e/9a193df974cff0aa-49/s75x75_c1/68baf0845fef60c6fe9b40cde1e85bb047676b3c.gifv" width="3%" align="center" style="margin-bottom: 20px;" /> and her walkman started to melt!
 
 
 
 
 
-![1177948_1ba2c](https://github.com/user-attachments/assets/26a7c6f7-66f4-46cf-b4a0-385bdd780b7b)
+https://github.com/user-attachments/assets/5b5c8637-a398-49dc-b6c0-ab179e101021
 
-# BOUNDARIES
-
-* Please do not bring up SHEDTWT, your bodily insecurities (im not the right person you should be venting to this about!), or any other sensitive things of the sorts.
-* I have no DNI, but I prefer darkshippers or radqueers to stay at thin ice/to not get too cozy since I am in recovery.
-
-# EXTRA/FUN STUFF
-
-this is my typology so far!
-so1 139 xstj
 
 
 
